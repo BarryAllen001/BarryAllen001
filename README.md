@@ -3,7 +3,7 @@
 
 ## **Estudante das Linguagens: Python,JavaScript, C**
 ### **Cursando - Tecnico em Automação Industrial & Residencial 3/3 👨🏻‍💻**
-#### **Discord: 合 ๖ۣۜBarry'™#0001**
+#### **Discord: 合 ๖ۣۜBarry'™#0011**
 
 
 ![Twitter Badge](https://img.shields.io/twitter/follow/BarryDc18?style=social) ឵឵឵ ឵឵឵ ឵឵឵ ឵឵឵ ឵឵឵ ឵឵឵ ឵឵឵ 
